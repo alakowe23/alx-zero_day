@@ -1,1 +1,1 @@
-fbtyhgbrg
+school is not cool
